@@ -1,0 +1,25 @@
+# Dean Fujioka – Echo
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Wow...
+I wish I could see you beyond what I see
+And feel the way you touch me
+Only if I still exist in the world
+The world you live in
+Wow...
+Tell me why why so why can I not forgive myself
+Inside my head I keep hearing echo
+Tell me why why so why can I not forget my past
+Inside my head I keep hearing echo
+Tell me why why so why can I not forgive...
+Just tell me why why so why
+can I not forget my past
+Inside my head I keep hearing echo
+Somebody tell me why why so why
+can I not forgive...
+Inside my head I keep hearing echo
+Tell me why why so why can I not forget my past
+Inside my head I keep hearing echo
+```
