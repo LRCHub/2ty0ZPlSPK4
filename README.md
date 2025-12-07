@@ -1,4 +1,4 @@
-# Dean Fujioka – Echo
+# DEAN FUJIOKA – Echo
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
